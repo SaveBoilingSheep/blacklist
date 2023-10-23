@@ -1,2 +1,2 @@
 # blacklist
-This is black woman friends list.
+This is black girlfriends list.
